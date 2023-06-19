@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @Galih17421010
-- 👀 I’m interested in learn cide
+- 👀 I’m interested in learn code
 
 - 📫 How to reach me agussaputragalih@gmail.com
 
